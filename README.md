@@ -85,6 +85,10 @@ Enter **ROCKET130** in the “Enter promo code” field while signing up. Make y
 - **Sports Bonus:** 130% of your first deposit (up to $130).  
 - **Casino Bonus:** Up to $2300 over several deposits, plus 150 free spins.
 
+### How many times can you use the promo code?
+- The promo code is only available once, so make sure to take advantage of it.
+
+
 ### Are there wagering requirements?
 - **Sports:** 5x the bonus amount on accumulator bets (at least 3 selections, each with odds 1.40 or higher).  
 - **Casino:** 35x the bonus amount. Free spins winnings must also meet wagering requirements.  
