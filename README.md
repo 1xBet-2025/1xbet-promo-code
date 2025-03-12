@@ -4,6 +4,13 @@
 
 Looking for the latest **[1xBet](https://rebrand.ly/1xbet-promo-code) Promo Code** in March 2025? You're in luck! The promo code **ROCKET130** offers new players an exclusive **130% deposit bonus** on their first deposit. This means you get 30% more bonus funds than the standard offer, giving you extra cash to bet on sports or play casino games. In this article, we'll explain how to activate the ROCKET130 code, how the bonus works, and give an overview of [1xBet's](https://rebrand.ly/1xbet-promo-code) sports betting, casino offerings, and other promotions available in 2025.
 
+## Latest 1xBet Promo Codes
+| Bonus Type | Promo Code | Details |
+|------------|-------------|------------------------|
+| 🎰 Casino Welcome Bonus | **ROCKET130** | Get **130% Deposit Bonus** |
+| 🎁 Free Spins Bonus | **ROCKET130** | Get up to **150 Free Spins** |
+| ⚽️ Sports Bonus | **ROCKET130** | Get up to **$2,000** |
+
 ## How to Activate 1xBet Promo Code
 Activating the 1xBet promo code is easy. Just follow these steps to sign up and claim your bonus:
 
