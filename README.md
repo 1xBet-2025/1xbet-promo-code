@@ -12,7 +12,7 @@ Activating the 1xBet promo code is easy. Just follow these steps to sign up and 
    Click on the **“Registration”** or **“Sign Up”** button. You can usually register by phone, email, or social media — choose the method you prefer.
 
 3. **Fill in your details**  
-   Enter the required information (country, currency, personal details). During this step, watch for a field labeled **"Enter promo code"**.
+   Enter the required information (country, currency, personal details). During this step, watch for a field labeled **"Enter [promo code](https://github.com/pocket-option-code/pocketoption-promo)"**.
 
 4. **Enter the code ROCKET130**  
    When you see the promo code field, type `ROCKET130` into it. Make sure it’s spelled correctly.
